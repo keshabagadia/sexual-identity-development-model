@@ -1,0 +1,2 @@
+# sexual-identity-development-model
+Identity is a word that encompasses multiple facets of our being, namely, gender, ethnicity, race and so forth. One of these important facets is our sexuality. In the past few decades, a number of theoretical and empirical advances have been made in an attempt to understand and map the process of sexual identity development for queer and heterosexual identity groups alike. For our purpose, this paper intends to conceptualise this developmental process in a manner that is all-inclusive and non-linear.
