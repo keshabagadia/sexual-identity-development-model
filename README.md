@@ -3,4 +3,4 @@ Identity is a word that encompasses multiple facets of our being, namely, gender
 
 This paper was co-written by Hetvi Parekh and myself for our Developmental Psychology course. We had conversations with multiple people for a wider perspective to assess the existing sexual identity development models with. With our gained insights and our personal insights from our own experiences, this text tries to shed light on the fluidity and the lifespan nature of the process.
 
-The file labelled "Rethinking Sexual Identity Development" is the paper and the one labelled "Interview Questions" are the pointers we used to have conversations with different people.
+The file labelled "Rethinking Sexual Identity Development" is the paper and the one labelled "Interview Questionnaire" are the pointers we used to have conversations with different people.
